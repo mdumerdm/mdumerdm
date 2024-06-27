@@ -1,8 +1,8 @@
 - 👋 It's Muhammad Umer Awan here .
-- 👀 I’m interested in Technology and fiddling with it always.
+- 👀 I’m interested in Technology  or CS.
 - 🌱 I’m currently doing BS in Computer Science
-- 💞️ I’m always looking to collaborate on projects as i am always looking for problems/projects .
-- Looking for ways to impact the world somehow .
+- 💞️ I’m always looking to collaborate on projects  .
+- reach me out for collaboration.
 - 📫 How to reach me ... @mdumerdm
 
 <!---
