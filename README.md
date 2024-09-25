@@ -1,1 +1,2 @@
+EDUCATION-->MATRIC/O LEVELS-->HSSC(PRE-ENG)/A LEVELS-->BSCS
 Computation sparked me ..
