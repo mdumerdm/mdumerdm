@@ -1,1 +1,1 @@
-I am a computer scientist ..
+Computation sparked me ..
