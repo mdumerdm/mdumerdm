@@ -1,1 +1,2 @@
-I am in computing by profession and infinitely passionate about how computing can be used for solving different problems.
+I am a person who loves computing as a science and a way to engineer solutions to problems .
+Let's build together!.
